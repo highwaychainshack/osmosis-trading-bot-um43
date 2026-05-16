@@ -1,4 +1,4 @@
-# 
+# instant osmosis trading bot Algorithm | sniper-trades + rug-pull-detection offers the most advanced osmosis trading bot, with sniper-trades and rug-pull-detection. Ideal for
 
 
 
